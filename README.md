@@ -1,0 +1,1 @@
+# hayate-san.github.io
